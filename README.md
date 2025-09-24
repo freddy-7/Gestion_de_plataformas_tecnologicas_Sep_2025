@@ -1,0 +1,1 @@
+# Gestion_de_proyectos_de_plataformas_tecnol-gicas_Sep_2025
